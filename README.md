@@ -1,1 +1,4 @@
-![P1000411](https://github.com/user-attachments/assets/929ac8df-04d7-4dd3-9290-c9a1a9e58445)
+![P1011577-2](https://github.com/user-attachments/assets/d35fb653-5617-4ed0-b0aa-852aeb575a05)
+<p align="center">
+  Shot on LUMIX S5
+</p>
